@@ -195,4 +195,62 @@ that Hajj is almost over. Muslim, throughout the
 world on the same day 10th of zilHagg sacrifice
 an animal and celebrate Eid-ul-Adha.
 
-Q. Describe the method of Umrah? [10]
+### Q. Describe the method of Umrah? [10]
+#### 1. Meekat and intention!
+#### 2. Tawaaf
+#### 3. Sayee
+#### 4. Haircut 
+
+***1. Meekat and Intention:***
+
+Before reaching Meekat pilgrims perform Wudhu or
+ghusl and wear Ihram which is a special dress and
+is different for both males and females. For males it is two pieces of unstitched cloth which are to be. worn to cover the upper and lower part of the body. For females it is that they have to wear their normal clothes but have to cover the entire body except for hands, face and feet. Ihram is also a state of spiritual purity and removes all signs of distinctions between the pilgrims, making them all who appear equal. After wearing Ihram, Muslims are under certain restrictions for example no cutting of hair and
+nails etc.
+
+Then they offer two nafl prayer and make the
+intention of Umrah. After that they recite Talbiyah:
+***"Here Iam O Lord! Here I am"***
+
+***Tawaaf-e-Umrah:***
+
+Then the pilgrim's rush to the Holy Kaaba and
+perform Tawaaf-e-Umrah that is 7 circulations around the Holy Kaabah starting from the black stone and ending at the black stone. This is done in an anti-clockwise manner. During Tawaaf Muslims
+kiss the black stone either physically or symbolically. Then they perform private prayer (dua) at Multazim (between the doors of Holy Kaaba and black stone). Then they offer two nafl
+prayer at the place of Ibrahim which is the place where Hazrat Ibrahim stood while rebuilding the Holy, of calam Kaaba and his foot prints have been preserved there. Then Pilgrims drink water from the well of Zam Zam which completes their tawaaf.
+
+***3. Sayees:***
+
+Then they proceed to the hills of Safa and
+Marwa and perform sayee that is running.
+between the hills of Safa and Marwa 7
+times. Starting from Safa and ending at Marwa.
+This is performed only by males. While performing
+Sayee Muslims recite:
+"No doubt, Safa and Marwa are among Signs of Allah."
+
+it is done in remembrance of the sayee of
+Hazrat Hajra who ran between the hill's of
+Safa and Marwa in search of water for her
+infant son Hazrat Ismail. She noticed that where.
+she had left her son, water, started gushing out. Hence the well of Zam Zam was uncovered.
+
+***4. Haircut:***
+
+After this, pilgrims get a hair at which is different for both males and females. For men it is that they have to share their heads according to the Sunah of Holy Prophet (PBUH). For women it is that they have to get the cock of their haircut. This is a wajib (compulsory) act. After this they can change back into their normal clothes which is an indication that Umrah is over.
+
+### Q. Explain the difference between hajj and umrah.[4]
+
+***Hajj:***
+
+Hajj is obligatory
+
+hajj has a fixed date (8th to 13th of zilhajj).
+
+Rami is perfromed
+
+An animal is sacificed
+
+3 tawaafs (tawaaf-e-Qudum, tawaaf-e-Zairat, tawaaf-e-Wida)
+
+In Hajj we visit 
