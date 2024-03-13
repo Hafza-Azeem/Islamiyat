@@ -253,4 +253,4 @@ An animal is sacificed
 
 3 tawaafs (tawaaf-e-Qudum, tawaaf-e-Zairat, tawaaf-e-Wida)
 
-In Hajj we visit different
+In Hajj we visit different places like
