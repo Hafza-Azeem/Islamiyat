@@ -195,4 +195,4 @@ that Hajj is almost over. Muslim, throughout the
 world on the same day 10th of zilHagg sacrifice
 an animal and celebrate Eid-ul-Adha.
 
-Q. Describe
+Q. Describe 
