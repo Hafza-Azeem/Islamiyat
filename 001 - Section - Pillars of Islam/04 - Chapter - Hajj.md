@@ -253,4 +253,87 @@ An animal is sacificed
 
 3 tawaafs (tawaaf-e-Qudum, tawaaf-e-Zairat, tawaaf-e-Wida)
 
-In Hajj we visit different places like
+In Hajj we visit different places like Muzdalifa, Mina, Arafat
+
+obligatory for affording Muslims and they will be answerable for it to allah on the day of judgement
+
+Taliyah is stopped before Rami.
+
+***Umrah:***
+
+Umrah is voluntery
+
+No fixed date
+
+Rami notperfromed 
+
+No animal is sacrificed
+
+1 tawaaf (tawaaf-e-Umrah)
+
+In Umrah we don't visit these places (stay in makkah)
+
+Not obligatory and muslims will not be answerable for it.
+
+Talbiyah is not stopped.
+
+***Similarities:***
+
+Ihram, Wudhu/ghusl
+
+Tawaaf
+
+Sayee
+
+Intention
+
+Haircut
+
+Talbiyah
+
+### Q. Explain the importance of Hajj for a Muslim. [4]
+
+Haji is the 5th pillar of Islam and therefore obligatory on all rich Muslims. It is carried out in the month of
+ZiL Hajj (twelfth month of lunar calendar) · Muslims are to perform Hajj atleast once in a lifetime Holy Quran says.
+***"Pilgrimage to the house of Allah is a duty men owe to Allah, those who can afford the journey."***
+Therefore when Muslims fulfill this obligation they come closer to Allah and earn his blessings.
+
+It is a ritual which makes Muslims feel the
+importance of life they have on this earth and the
+afterlife by stripping away all markers of social
+status, wealth and pride as in Hajj all are equal.
+
+Hajj purifies Muslims from all sins as the Holy Quran says:
+***"He who performs Hajj for Allah's pleasure and avoids all sins, will be returned after Hajj free from all sins as he was on the day his mother gave birth to him."***
+
+### Q. Explain the comunal importance of Hajj [4]
+
+Hajj is the 5th pillar of Islam and therefore
+obligatory on all rich Muslims. It is
+carried out in the month of Zilhaji which is the twelfth month of the Lunar once in a
+calendar. Muslims must perform Hajj atleast
+lifetime as the Holy Quran says:
+***"Pilgrimage to the house of Allah is a duty men owe to Allah., those who can afford the
+Journey."***
+Therefore when 
+Muslims gather in large numbers at and perform the same obligation it makes Muslims feel stronger as part of Muslim community that is
+the Ummah. They also get to meet Muslims from all over the world and discuss problems and try to find solutions.
+
+Hajj promotes equality as it removes.
+social status, wealth and pride making all pilgrims appear equal, hence reducing all kinds of differences
+
+Haji stresses upon unity within Muslims because
+they all gather at one place at the same
+and perform the same obligation which
+promotes unity within the Muslims. Pilgrims
+also get to meet Musl ims from different
+corners of the world and also learn about the
+problems facing the Muslim community and therefore
+try to help them through cash and kind. This
+promotes international brotherhood and harmony as
+they act upon the Holy Prophet's saying...
+***"None of you believes until he wants for his brother what he wants for himself."***
+
+During the sermon of Arafat Muslims learn about
+the rights of fellow beings especially about the rights of women as stressed upon by the Holy Prophet (PBUH) himself. Hence they promote
+women rights and show acceptance towards females education, independence etc.
