@@ -107,4 +107,48 @@ the best moral character. The Holy Quran says:
 ***"Indeed, you have in the apostle of Allah, a
 beautiful pattern of conduct."***
 
+He was blessed with the Holy Quran which is
+the last universal and eternal divine book. It
+will never be changed as Allah Himself has
+taken. the responsibility to protect it. The Holy
+Quran says:
+***"Surely we have revealed this reminder (the Holy Quran) and no doubt we will protect it (from
+corruption)."***
+Therefore the Holy Prophet summed up the teachings
+of all previous prophets.
 
+The Holy Quran says in this regard.
+***"Muhammad is not the father of any of your men
+but he is the messenger of Allah and the seal
+of Prophets."***
+
+So the Holy Prophet is the last prophet of Allah
+and Allah completed the religion of Islam through
+him as the Holy Quran says:
+***"This day I have perfected your religion for you, completed my favours upon you and have
+chosen for you, Islam as your religion."***
+
+Outline:
+Introduction
+
+Description
+
+Examples
+
+Types of Prophets
+
+Features of Prophet (PBUH)
+
+Q. Outline the main features of Muslim belief
+in the line of prophetic messengers, who
+came before the Holy Prophet (PBUH). [10]
+
+Same answer as of the previous question
+
+(exclude features of Holy Prophet) 
+
+Q. What do Muslims mean when they say:
+"And Muhammad (PBUH) is the messenger of Allah"
+OR "Muhammad is the seal of Prophets."? [4]
+
+[features of the Holy Prophet (PBUH)]
