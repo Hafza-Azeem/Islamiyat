@@ -143,7 +143,7 @@ Outline:
 9. Non-Recipients
 
 ### Q. Explain the importance of zakat for a muslim./[4]
-A major pillar on which the structure of is stands is called zakat.Itcan be defined as a fixed proportion of one's wealth or possesion which is to be given to the poor after the completiomof a lunar year, Its improtance can be judged from the fact that the holy quran mentions it 32 times in the following word***"Establish prayer and practice charity."***
+A major pillar on which the structure of is stands is called zakat.Itcan be defined as a fixed proportion of one's wealth or possesion which is to be given to the poor after the completiomof a lunar year, Its improtance can be judged from the fact that the holy quran mentions it 32 times in the following word ***"Establish prayer and practice charity."***
 
 Hence when a muslim fulfills this pillar of islam,he/she shows obedience to the orders of Allah and earns His blessings,or comes closer to Him.
 

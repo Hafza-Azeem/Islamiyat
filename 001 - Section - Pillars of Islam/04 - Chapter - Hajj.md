@@ -153,17 +153,10 @@ Quran says:
 ***"Turn your faces in the direction of the sacred mosque, wherever you are, turn your faces in that direction."*** 
 
 Nowadays on the 8th of ZiLHaji Muslims
-rush to the Holy Kaaba and perform Tawaaf-e- Qudum that is 7 circulations around the Holy Kaaba starting from the black stone and ending at the black stone. This is done in an anti-clockwise
-manner. Puring Tawaaf Muslims kiss the block stone
-either physically or symbolically. Then they perform.
-private prayer (dua) at Multazim (between the
+rush to the Holy Kaaba and perform Tawaaf-e- Qudum that is 7 circulations around the Holy Kaaba starting from the black stone and ending at the black stone. This is done in an anti-clockwise manner. Puring Tawaaf Muslims kiss the block stone either physically or symbolically. Then they perform. private prayer (dua) at Multazim (between the
 doors of Holy Kaaba and black stone). Then they
-perform two nafl prayer at the place of Ibrahim which is the place where Hazrat Ibrahim stood
-i while rebuilding the Holy Kaaba and his footprints
-have been preserved there. Then between 10th and 12th of
-ZPLHajj, Muslims perform Tawaaf-e-Ziarat that is the
-Jus 3rd obligation of Haji. Before leaving Makkah Muslims
-at perform Tawaaf-e-wpd. (farewell Tawaaf),
+perform two nafl prayer at the place of Ibrahim which is the place where Hazrat Ibrahim stood  while rebuilding the Holy Kaaba and his footprints have been preserved there. Then between 10th and 12th of ZiLHajj, Muslims perform Tawaaf-e-Ziarat that is the 3rd obligation of Haji. Before leaving Makkah Muslims perform at Tawaaf-e-wid. (farewell Tawaaf)
+
 ***2. Ihram:***
  Ihram is a state of spiritual purity which Muslims
 enter when beginning their pilgrimage. Due to this they
@@ -172,9 +165,8 @@ dress code for Pilgrims which is different for both
 males and females. For males it is two pieces of
 unstitched cloth which are to be worn to cover the
 upper and lower portion of the body. For females it is
-that they have to wear their normal clothes but have their entire body except hands, face and to Cover feet. They wear this
-They then intention make weal after performing wudhu or ghusl.
-intention of Haji. The making of and wearing of Ihram is the 1st obligation all pilgrims appear equal as it  removes all signs of distinctions between them which promotes equality.
+that they have to wear their normal clothes but have their entire body except hands, face and to Cover feet. They wear this after performing wudhu or ghusl.The making of 
+intention and wearing of Ihram is the 1st obligation all pilgrims appear equal as it  removes all signs of distinctions between them which promotes equality.
 
 ***3. Eid-ul-Adha:***
 
@@ -210,14 +202,12 @@ nails etc.
 
 Then they offer two nafl prayer and make the
 intention of Umrah. After that they recite Talbiyah:
-***"Here Iam O Lord! Here I am"***
+***"Here I am O Lord! Here I am"***
 
 ***Tawaaf-e-Umrah:***
 
 Then the pilgrim's rush to the Holy Kaaba and
-perform Tawaaf-e-Umrah that is 7 circulations around the Holy Kaabah starting from the black stone and ending at the black stone. This is done in an anti-clockwise manner. During Tawaaf Muslims
-kiss the black stone either physically or symbolically. Then they perform private prayer (dua) at Multazim (between the doors of Holy Kaaba and black stone). Then they offer two nafl
-prayer at the place of Ibrahim which is the place where Hazrat Ibrahim stood while rebuilding the Holy, of calam Kaaba and his foot prints have been preserved there. Then Pilgrims drink water from the well of Zam Zam which completes their tawaaf.
+perform Tawaaf-e-Umrah that is 7 circulations around the Holy Kaabah starting from the black stone and ending at the black stone. This is done in an anti-clockwise manner. During Tawaaf Muslims kiss the black stone either physically or symbolically. Then they perform private prayer (dua) at Multazim (between the doors of Holy Kaaba and black stone). Then they offer two nafl prayer at the place of Ibrahim which is the place where Hazrat Ibrahim stood while rebuilding the Holy, of calam Kaaba and his foot prints have been preserved there. Then Pilgrims drink water from the well of Zam Zam which completes their tawaaf.
 
 ***3. Sayees:***
 
@@ -227,9 +217,9 @@ between the hills of Safa and Marwa 7
 times. Starting from Safa and ending at Marwa.
 This is performed only by males. While performing
 Sayee Muslims recite:
-"No doubt, Safa and Marwa are among Signs of Allah."
+***"No doubt, Safa and Marwa are among Signs of Allah."***
 
-it is done in remembrance of the sayee of
+It is done in remembrance of the sayee of
 Hazrat Hajra who ran between the hill's of
 Safa and Marwa in search of water for her
 infant son Hazrat Ismail. She noticed that where.
@@ -337,3 +327,46 @@ they act upon the Holy Prophet's saying...
 During the sermon of Arafat Muslims learn about
 the rights of fellow beings especially about the rights of women as stressed upon by the Holy Prophet (PBUH) himself. Hence they promote
 women rights and show acceptance towards females education, independence etc.
+
+### Method of hajj
+
+### Q. Describe the method of hajj.[10]
+
+1. Date: 8th if zilhajj
+
+Place: Meekat
+
+Ritual: When reaching pilgrims will perfrom wudh or ghusl and wear Ihram which which is different for both males and females. For males it is two pieces of unstitched cloth which are to be. worn to cover the upper and lower part of the body. For females it is that they have to wear their normal clothes but have to cover the entire body except for hands, face and feet.  
+
+Then they offer two nafl prayer and make the
+intention of Hajj.
+
+Then Muslim recite Talbiyah:
+***"Here I am O Lord! Here I am..."***
+
+2. Date: 8th of zilhajj
+
+Place: Holy Kaaba
+
+Ritual: Then the pilgrim's rush to the Holy Kaaba and
+perform Tawaaf-e-Umrah that is 7 circulations around the Holy Kaabah starting from the black stone and ending at the black stone. This is done in an anti-clockwise manner. While perfroming Tawaaf Muslims kiss the black stone either physically or symbolically.
+
+After this the pilgrims  perform private prayer (dua) at Multazim (between the doors of Holy Kaaba and black stone).
+
+Then they perform two nafl prayer at the place of Ibrahim which is the place where Hazrat Ibrahim stood  while rebuilding the Holy Kaaba and his footprints have been preserved there. in the end the pilgrims drink water from the well of ZamZam which completes their Tawaaf. 
+
+hen they proceed to the hills of Safa and
+Marwa and perform sayee that is running/taking a brisk walk
+between the hills of Safa and Marwa 7 times. Starting from Safa and ending at Marwa.This is performed only by males. While performing Sayee Muslims recite:
+***"No doubt, Safa and Marwa are among Signs of Allah."***
+
+This is done by males only. It is done in remembrance of the sayee of Hazrat Hajra who ran between the hill's of
+Safa and Marwa in search of water for her
+infant son Hazrat Ismail. She noticed that where.
+she had left her son, water started gushing out. Hence the well of Zam Zam was uncovered.
+
+4. Date: 8th of zilhajj
+
+Place: Mina (before zuhr) 
+
+Ritual:
