@@ -152,3 +152,72 @@ Q. What do Muslims mean when they say:
 OR "Muhammad is the seal of Prophets."? [4]
 
 [features of the Holy Prophet (PBUH)]
+
+Q. Explain the importance of belief in prophets to modern Muslims. [4]
+It is. an article of faith as Iman-e-Muffasil says:***"I believe in Allah and His angels and His books and His prophets and in the fact that all good and bad fate has been predecided by Allah and in resurrection and life after death"***
+This shows that a modern Muslim knows that
+without believing in all the prophets, their faith would be incomplete and he would be out of the fold of Islam  as it is imperative.
+
+When Muslims believe in all prophets including Hazrat Isa (A.S) (prophet of Christians) and Hazrat Musa (A.S) (prophet of Jews), they come closer to the non- Muslims (Christians and Jews) which promotes brotherhood and religious harmony
+
+The prophets faced many hardships during their lifetime and in the way of Allah but still remained stead fast for example. the Holy Prophet (PBUH) was
+persecuted by the Meccans but he still continued his mission with full commitment. Thus it teaches modern Muslims to adopt patience and sacrifice in the way of Allah.
+
+All the prophets conveyed the same message
+of Tauheed (oneness of Allah) which teaches Muslims to avoid shirk (associating partners with Allah)
+as it is an unpardonable sin.
+
+ #### Q. Explain the difference between prophets and angels. [4]
+
+Angels are genderless whereas all prophet's were males based 
+
+Angels do not have freewill which means that they will not be held accountable on the day of judgement whereas prophets do. 
+
+angels prostrated before Hazrat Adam 
+(A.S) under Allah's orders which shows that prophet's (humans) are superior to an angels. 
+
+there were 124,000 prophets whereas angel's are countless in number.
+
+Angels do not have any physical requirements. for example food or sleep whereas prophets being humans do require these things.
+
+Angel's are made up of light whereas prophets are made of sand.
+
+Angels have wings whereas prophets do not.
+
+Angels are invisible whereas prophets.
+are visible.
+
+Angels have longer lives than prophets.
+
+#### Q. Explain the similarities between 
+angels and prophets. [4]
+They both are the creation of Allah but do not any physical relationship with him.
+
+Both are the servants of Allah
+
+Both are mortal 
+
+Both pray for the forgiveness of believers.
+
+Both are messengers of Allah.
+
+Both are sinless.
+
+Belief in both is an article of faith.
+
+Both have been given holy tasks  to fulfill.
+
+#### Q. "Prophets are superior to angels."Do you agree? Give reasons. [4].
+
+Man has been created as the best of the
+creations, among men prophets are regarded as the  best. Angel's prostrated before Hazrat Adam (A-S) under Allah's orders which shows that the prophets
+(the best of men) are superior to angels.
+
+Angels do not have free will but humans (prophets) do and hence they always have a choice between. right and wrong. In their case they always chose.
+the right path, for example Hazrat Ibrahim was ordered by Allah to sacrifice his son. Satin tried mislead him at different stages but he showed his commitment towards Allah by rejecting satin and chosing the right path. for
+this choice, prophets are held accountable.
+
+Angels have Limited knowledge which is given to them by Allah whereas prophets can acquire as much knowledge they want because they have freewill.
+
+Angel Jibrael accompanied the Holy Prophet in the journey of mairaj. At a certain point i.e. Sidrat-ul-Muntaha (where Allahs throne begins), angel Jibrael stopped as he allowed to proceed any was not further as his wings would burn whereas the Prophet (PBUH) proceeded and met Allah. This shows his superior status as he could go even further
+than the arch-angel
