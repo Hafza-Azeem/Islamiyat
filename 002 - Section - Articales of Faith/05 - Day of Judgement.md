@@ -11,7 +11,8 @@ says:
 ***"It is righteousness to believe in Allah and His angels and His books and His prophets and in the last day"***
 This shows that believing in Day of judgement/resurrection and life after death is an act of piety.
 
-Description:
+***Description:***
+
 Muslims believe that this life is temporary and will come to an end one day. Then people will be resurrected to give an account of their deeds of this world to Allah who is the of the day of judgement master
 The Holy Quran says:
 ***"Every soul shall have the taste of death in the end to us shall you be brought back"***
