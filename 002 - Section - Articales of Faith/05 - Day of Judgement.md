@@ -1,7 +1,8 @@
 ### Section 2: Articles of Faith
 ### Chapter 5: Day of Judgement
 #### Q. Outline the main features of Muslim belief in the day of judgement/resurrection and life after death. [10]
-Introduction:
+***Introduction:***
+
 It is an article of faith as Iman-e-Muffasil says:
 ***"I believe in Allah and His angels and His books and His prophets and in the fact that all good and bad fate has been predecided by Allah and in resurrection (life after death)"***
 This shows that believing in judgement / resurrection is imperative for  Muslims otherwise their faith would be incomplete and they would be out of the fold of Islam.
