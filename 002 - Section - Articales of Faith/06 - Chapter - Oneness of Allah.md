@@ -236,3 +236,68 @@ This shows that a modern muslim knows that without believing in tauheed his fait
 Allah is All-Hearing and ALL-Seeing therefore a modern Muslim becomes more responsible in his everyday life and tries to do more good deeds that are acceptable to Allah for example following the pillars of Islam and avoids sins Like disrespecting parents and shirk.
 
 It makes us modest and humble as we know that everything we own is a blessing of Allah. Therefore we do not consider ourselves superior to others as we know that we will be held accountable on the day of judgement for everything we have.
+
+
+#### Section 1: Pillars of Islam
+#### Chapter 1: Shahadah
+
+##### Shahadah
+
+##### Oneness of Allah:
+
+>basic pillar intro
+
+>exclude shirk
+
+##### Prophethood of Holy Prophet (PBUH) 
+
+>features of Holy Prophet (PBUH)
+
+***Outline:***
+
+***Introduction:***
+
+Shahadat consists of 2 main beliefs that are
+belief in oneness of Allah and belief in the
+prophethood of Holy Prophet (PBUH).
+
+The first pillar on which the structure of Islam stands is called shahadah.
+
+
+The Holy Quran says:
+***"It is righteousness to believe in Allah and His angels and His books and His prophets and in the Last day."***
+This shows that believing in oneness of Allah is an act of piety.
+
+Description
+
+Surah Ikhlas
+
+Allahs Creative powers
+
+Allahs Existence
+
+Master of the day of Judgement
+
+Allahs Knowledge
+
+Tauheed
+
+Features of Holy Prophet (PBUH)
+
+Note: exclude shirk and write features of Holy Prophet (PBUH) instead also exclude Iman-e-Muffasil
+
+Q. Why is shirk condemned in Islam? [4]
+
+Tauheed (oneness of Allah) is the basic article of faith as Iman-e-Muffasil
+***"I believe in Allah..."***
+which shows that tauheed is belief in oneness  Allah whereas shirk is associating partners with Allah. Thus when a person commits shirk they debase the basic structure / principal of Islam.
+
+It is against the status of Allah as He is the Creator, Cherisher and Sustainor of all His Creation. He provides everything, yet the credit is given to other worldly things which is unfair to Him and is an unpardonable sin.
+
+It is also against the status of human beings as they have been created as the best of the creation. However when committing shirk one bows down to things that are inferior to him, Hence
+flowering his value in the sight of Allah.
+
+As the Holy Quran says:
+***"Allah does not forgive associating partners with Him, but He forgives everything else to whom He pleases"***
+The Holy Prophet (PBUH) has said:
+***"Shirk is the greatest of all sins."***
